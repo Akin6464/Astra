@@ -17,6 +17,3 @@ Towers/Mines/Crash
 
 22.09.2023
 
-https://www.mediafire.com/file/s8ovcb8kh95188a/Astra.rar/file
-
-https://www.tiktok.com/@lv_riot_lv/video/7281393354317876512?browserMode=1
